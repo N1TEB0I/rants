@@ -1,4 +1,4 @@
-# my first day at my job was absolute hell
+# my first day on the job was absolute hell
 
 teenage boys are always so disrespecftul its just insufferable now
 
