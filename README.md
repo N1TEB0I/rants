@@ -1,2 +1,1 @@
-# rants / days / opinions
-it really depends, i dont expect myself to do much in this
+my mum keeps on making unfunny jokes but i love her so i gotta pretend sometimes.... plz help me
