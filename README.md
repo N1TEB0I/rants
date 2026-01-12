@@ -10,5 +10,5 @@ links yo
 <img width="1554" height="626" alt="image" src="https://github.com/user-attachments/assets/55a190a3-b387-4a6a-883b-ade369f343e7" />
 
 
-pfp has been made but i dont plan on changing rn
+omg the colouring is so ugly 🥹🙌💔
 
